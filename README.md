@@ -1,0 +1,1 @@
+# Dvojrozmerne-dynamicke-polia
